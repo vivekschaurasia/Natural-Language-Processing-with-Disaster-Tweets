@@ -17,4 +17,5 @@ https://www.kaggle.com/competitions/nlp-getting-started
 
 
 
+Follow me on Linkedin: https://www.linkedin.com/in/vivek-santosh-chaurasia-567b15197/
 
